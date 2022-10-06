@@ -11,8 +11,7 @@ Tucker Torpedo.
 Land Rover.
 Jeep Willys.
 Com desconto imperdível
-fotos de nossos produto:
-![image](https://user-images.githubusercontent.com/113630318/194380213-6c0ebd15-46b6-493c-bfac-7dbff7699d23.png)
+fotos de nossos produto:![image](https://user-images.githubusercontent.com/113630318/194380213-6c0ebd15-46b6-493c-bfac-7dbff7699d23.png)
 ![image](https://user-images.githubusercontent.com/113630318/194380253-644c5e83-ba3d-439c-8331-3f7428e30bf0.png)
 ![image](https://user-images.githubusercontent.com/113630318/194380273-5d5f5a70-5ba8-4457-b12b-11251d685066.png)
 ![image](https://user-images.githubusercontent.com/113630318/194380295-4cda374f-e850-4092-a62a-1a8bee2ee26b.png)
