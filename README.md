@@ -2,7 +2,7 @@
 -------------------------------------------------------------------------------------------------------------------------------------------------------
 
 Relíquias sobre rodas ,carros antigos e com seu estado ótimo com carros limitados e personalizados com sua garantia e qualidade de produto em dia .Fazemos parcelas de até 56 x sem juros.
-logo de nossa loja:   ![image]https://user-images.githubusercontent.com/113630318/200843065-6da40dcc-ab5e-4ba0-85cb-0f1ac7f148b9.png
+logo de nossa loja:   ![image]![image](https://user-images.githubusercontent.com/113630318/200843836-8a26ff26-dbb8-41a7-9f1a-8a373d442fec.png)
 vendemos carros antigos de ótima qualidade como:
 Citroen 2CV.
 VW Beetle.
