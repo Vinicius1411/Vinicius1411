@@ -36,4 +36,6 @@ Rua= Rua das flores-Curitiba-PR-80020-310
 
 
  ![qrcode_github com](https://user-images.githubusercontent.com/113630318/202513027-2a8ea27d-edd6-42b3-be48-cd581a136871.png)
+ 
+ 
 Ou escaneie o QR code para ir a nosso pagina da loga
