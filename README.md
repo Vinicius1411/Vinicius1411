@@ -29,9 +29,3 @@ Rua= Rua das flores-Curitiba-PR-80020-310
  
  
  ![qrcode_github com](https://user-images.githubusercontent.com/113630318/202513027-2a8ea27d-edd6-42b3-be48-cd581a136871.png)
- 
- ![qrcode_user-images githubusercontent com](https://user-images.githubusercontent.com/113630318/202513781-6e48a3a0-e0fb-49b7-acd9-411cdec3ad41.png)
-
-
-![qrcode_user-images githubusercontent com (1)](https://user-images.githubusercontent.com/113630318/202514973-450baa06-c84e-4f2e-8839-5973f60bb56f.png)
-
