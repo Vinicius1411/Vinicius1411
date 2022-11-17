@@ -26,3 +26,6 @@ Confira nossos produtos no instagram:@Carros_Antigos E nos ligue quando tiver du
 Venha para nossa loja Relíquias Cars, com carros limitados e antigos com até 10% de desconto ,antes que acabe, corra para essa promoção imperdível. venha conferir nossa loja fixa:
 
 Rua= Rua das flores-Curitiba-PR-80020-310
+ 
+ 
+ ![qrcode_github com](https://user-images.githubusercontent.com/113630318/202513027-2a8ea27d-edd6-42b3-be48-cd581a136871.png)
