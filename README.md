@@ -23,7 +23,10 @@ Venha para nossa loja Relíquias Cars, com carros limitados e antigos com até 1
 ![image](https://user-images.githubusercontent.com/113630318/194380317-b603d560-ceca-4c08-9af7-7e031d7530c4.png)
 ![image](https://user-images.githubusercontent.com/113630318/194380344-cd20c762-bd03-4bdf-bacb-d72db99a5db2.png)
 
-Confira nossos produtos no instagram:@Carros_Antigos E nos ligue quando tiver duvidas da nossa loja,ou quando quer compra eu carro. Numero:(41)99651-9782.
+Confira nossos produtos no instagram:@Carros_Antigos E nos ligue quando tiver duvidas da nossa loja,ou quando quer compra eu carro. 
+
+Numero:(41)99651-9782.
+
 Venha para nossa loja Relíquias Cars, com carros limitados e antigos com até 10% de desconto ,antes que acabe, corra para essa promoção imperdível. venha conferir nossa loja fixa:
 
 Rua= Rua das flores-Curitiba-PR-80020-310
