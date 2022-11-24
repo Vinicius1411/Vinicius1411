@@ -1,6 +1,8 @@
                                                   Reliquias_Cars
 -------------------------------------------------------------------------------------------------------------------------------------------------------
 
+Relíquias sobre rodas ,carros antigos e com seu estado ótimo com carros limitados e personalizados com sua garantia e qualidade de produto em dia .Fazemos parcelas de até 72 x com juros de 1.2% no juros simples.
+O juros funciona do seguinte modo: enquanto maior a parcela mais juros sera aplicado a cada 12 parcelas a mais adicionará 0,2% de juros
 
 logo de nossa loja:   ![image]![image](https://user-images.githubusercontent.com/113630318/200843836-8a26ff26-dbb8-41a7-9f1a-8a373d442fec.png)
 vendemos carros antigos de ótima qualidade como:
@@ -33,7 +35,7 @@ Cartão (Débito ou Crédito) parceladas.
 
 tambem o boletos bancario e pix.
 
-https://user-images.githubusercontent.com/113630318/203776842-0db62c15-7f05-4c3e-9301-7505087c5458.png 
+![image](https://user-images.githubusercontent.com/113630318/203778410-9bfa876e-328b-4561-a89b-b670ac40a4a3.png)
 
 ![image](https://user-images.githubusercontent.com/113630318/203778079-eb420a49-ae95-4c42-9792-86e63e94599c.png)
 
