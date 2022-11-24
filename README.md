@@ -28,12 +28,14 @@ Confira nossos produtos no instagram:@Carros_Antigos E nos ligue quando tiver du
 
 Cartão (Débito ou Crédito) parceladas.
 
+![image](https://user-images.githubusercontent.com/113630318/203778012-cb7058a3-689d-4c96-a8b6-b4124678185c.png)
 
 
 tambem o boletos bancario e pix.
 
+https://user-images.githubusercontent.com/113630318/203776842-0db62c15-7f05-4c3e-9301-7505087c5458.png 
 
-
+![image](https://user-images.githubusercontent.com/113630318/203778079-eb420a49-ae95-4c42-9792-86e63e94599c.png)
 
 Numero:(41)99651-9782.
 
