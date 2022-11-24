@@ -23,7 +23,17 @@ Venha para nossa loja Relíquias Cars, com carros limitados e antigos com até 1
 ![image](https://user-images.githubusercontent.com/113630318/194380317-b603d560-ceca-4c08-9af7-7e031d7530c4.png)
 ![image](https://user-images.githubusercontent.com/113630318/194380344-cd20c762-bd03-4bdf-bacb-d72db99a5db2.png)
 
-Confira nossos produtos no instagram:@Carros_Antigos E nos ligue quando tiver duvidas da nossa loja,ou quando quer compra eu carro.Pagamento em cartões e boletos.
+Confira nossos produtos no instagram:@Carros_Antigos E nos ligue quando tiver duvidas da nossa loja,ou quando quer compra eu carro.
+ Você pode fazer as seguintes formas de pagamento:
+
+Cartão (Débito ou Crédito) parceladas.
+
+
+
+tambem o boletos bancario e pix.
+
+
+
 
 Numero:(41)99651-9782.
 
